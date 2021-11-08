@@ -1,0 +1,2 @@
+# Female-Artists-of-Modern-China
+This database configures diverse forms of modern art by often overlooked Chinese female artists of the twentieth century. Our collection holds an emphasis on women published in Chinese magazines and periodicals and includes images of paintings, photographs, costume designs, lanterns, and more. Search through our catalogue to explore these articles published and artwork featured by women artists in early twentieth-century China. 
